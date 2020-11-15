@@ -1,0 +1,4 @@
+- Listening to Music
+- Gaming 
+- Coding
+- Annoying my Sister 

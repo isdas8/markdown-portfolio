@@ -1,0 +1,2 @@
+- Outgoing,Emphathising,Sensitive
+- Skilled in: *C++* , _Python_ 
